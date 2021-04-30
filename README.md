@@ -1,2 +1,2 @@
 # mickacya Blog
-Telegram - @mickacyablog, subscription or life?
+Telegram - durov.cc/mickacyablog, subscription or life?
